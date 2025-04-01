@@ -10,7 +10,7 @@ In this article, we'll walk you through the latest Educative coupon codes, show 
 
 Here’s a roundup of some of the best coupon codes available for Educative right now. These codes give you access to significant discounts on their online courses, subscriptions, and more!
 
-#### 1. Code: SAVE20
+### 1. Code: SAVE20
 
 * Discount Details: Save 20% on your first purchase
 
@@ -20,7 +20,7 @@ Here’s a roundup of some of the best coupon codes available for Educative righ
 
 * How to Use: Simply enter the code "SAVE20" at checkout on Educative’s website. You’ll instantly see the discount applied to your order!
 
-#### 2. Code: LEARN30
+### 2. Code: LEARN30
 
 * Discount Details: Get 30% off any subscription plan (Annual and Monthly)
 
@@ -30,7 +30,7 @@ Here’s a roundup of some of the best coupon codes available for Educative righ
 
 * How to Use: During checkout, enter "LEARN30" and watch the savings stack up!
 
-#### 3. Code: EDUCATE50
+### 3. Code: EDUCATE50
 
 * Discount Details: Enjoy a massive 50% off select courses
 
