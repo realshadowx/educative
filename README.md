@@ -16,6 +16,12 @@ Save 72% on Educative.io's Standard, Premium, and Premium Plus plans! Get access
 
 [![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/c0616c2a-4362-4f55-baad-c644a20432cc)](https://www.educative.io/unlimited?aff=BbLr)
 
+### 69% Off Educative.io Coupon
+
+AI April Early Bird deals are almost gone! Grab 69% off now and level up your skills with top AI courses. The offer is valid till the end of the April month.
+
+[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/c0616c2a-4362-4f55-baad-c644a20432cc)](https://www.educative.io/unlimited?aff=BbLr)
+
 ### 1. Code: SAVE20
 
 * Discount Details: Save 20% on your first purchase
@@ -46,6 +52,8 @@ Save 72% on Educative.io's Standard, Premium, and Premium Plus plans! Get access
 
 * How to Use: Enter the code "EDUCATE50" when purchasing select courses on the site.
 
+[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/c0616c2a-4362-4f55-baad-c644a20432cc)](https://www.educative.io/unlimited?aff=BbLr)
+
 ## How to Redeem Educative.io Coupon Codes?
 
 Redeeming your Educative coupon code is quick and simple! Follow these easy steps to start saving:
@@ -61,6 +69,8 @@ Redeeming your Educative coupon code is quick and simple! Follow these easy step
 5. Confirm the discount: The discount will be reflected in your total. Check to ensure everything looks correct before finalizing your purchase.
 
 6. Complete the purchase: Finish your checkout and start learning with Educative at a great price!
+
+[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/c0616c2a-4362-4f55-baad-c644a20432cc)](https://www.educative.io/unlimited?aff=BbLr)
 
 ## Educative.io Pricing Breakdown
 
