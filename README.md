@@ -10,6 +10,12 @@ In this article, we'll walk you through the latest Educative coupon codes, show 
 
 Here’s a roundup of some of the best coupon codes available for Educative right now. These codes give you access to significant discounts on their online courses, subscriptions, and more!
 
+### Educative.io 72% Discount
+
+Save 72% on Educative.io's Standard, Premium, and Premium Plus plans! Get access to high-quality courses and boost your skills at a fraction of the cost. Don't miss this limited-time offer!
+
+[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/c0616c2a-4362-4f55-baad-c644a20432cc)](https://www.educative.io/unlimited?aff=BbLr)
+
 ### 1. Code: SAVE20
 
 * Discount Details: Save 20% on your first purchase
