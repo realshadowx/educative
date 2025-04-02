@@ -58,7 +58,7 @@ AI April Early Bird deals are almost gone! Grab 69% off now and level up your sk
 
 Redeeming your Educative coupon code is quick and simple! Follow these easy steps to start saving:
 
-1. Visit the Educative website: Go to[ www.educative.io](https://www.educative.io).
+1. Visit the Educative website: Go to[ www.educative.io](https://www.educative.io/unlimited?aff=BbLr).
 
 2. Browse and select your courses or subscription plan: Find the courses, certifications, or plans that best match your learning goals.
 
