@@ -2,9 +2,9 @@
 
 Are you looking to score huge discounts on your next purchase at Educative?
 
-In this article, we'll walk you through the latest Educative coupon codes, show you how to redeem them, and provide a breakdown of pricing so you know exactly what to expect.
+In this article, we'll walk you through the latest [Educative coupon codes](https://www.educative.io/unlimited?aff=BbLr), show you how to redeem them, and provide a breakdown of pricing so you know exactly what to expect.
 
-[![Email-BANNER-Yellow](https://github.com/user-attachments/assets/1d957ca7-2615-47ea-8047-cd567edc6255)](https://www.educative.io)
+[![Email-BANNER-Yellow](https://github.com/user-attachments/assets/1d957ca7-2615-47ea-8047-cd567edc6255)](https://www.educative.io/unlimited?aff=BbLr)
 
 ## Latest Educative Coupon Codes
 
