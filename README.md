@@ -4,7 +4,8 @@ Are you looking to score huge discounts on your next purchase at Educative?
 
 In this article, we'll walk you through the latest [Educative coupon codes](https://www.educative.io/unlimited?aff=BbLr), show you how to redeem them, and provide a breakdown of pricing so you know exactly what to expect.
 
-[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/c0616c2a-4362-4f55-baad-c644a20432cc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Educative-Unlimited-Excel-with-AI-Powered-Learning-04-06-2025_12_02_AM](https://github.com/user-attachments/assets/4fdd895f-e3b7-43ff-a197-90f58f1d092d)](https://www.educative.io/unlimited?aff=BbLr)
+
 
 ## 50% Off On Educative Standard
 
