@@ -6,6 +6,24 @@ In this article, we'll walk you through the latest [Educative coupon codes](http
 
 [![Email-BANNER-Yellow](https://github.com/user-attachments/assets/1d957ca7-2615-47ea-8047-cd567edc6255)](https://www.educative.io/unlimited?aff=BbLr)
 
+## 50% Off On Educative Standard
+
+Get 50% off the Educative Standard Plan and pay only $13 per month, billed annually at $149 instead of $298. This offer gives you full access to over 900 hands-on courses, completion certificates, AI-powered learning features, and the Educative Newsletter. It’s a limited-time deal designed to help you learn faster and grow your skills at half the price.
+
+[![Email-BANNER-Yellow](https://github.com/user-attachments/assets/1d957ca7-2615-47ea-8047-cd567edc6255)](https://www.educative.io/unlimited?aff=BbLr)
+
+## 50% Off On Educative Premium Plan
+
+Get 50% off the Educative Premium Plan and pay just $17 per month, billed annually at $199 instead of $398. This offer includes everything in the Standard Plan, plus access to over 310 real-world projects, personalized learning paths, monthly AI mock interviews, and tailored interview preparation. It’s a great way to level up your skills and get job-ready—now at half the cost.
+
+[![Email-BANNER-Yellow](https://github.com/user-attachments/assets/1d957ca7-2615-47ea-8047-cd567edc6255)](https://www.educative.io/unlimited?aff=BbLr)
+
+## 50% Off On The Educative Premium Plus Plan
+
+Get 50% off the Educative Premium Plus Plan and pay only $21 per month, billed annually at $249 instead of $498. This plan includes everything in Premium, plus access to over 220 AWS Cloud Labs and seven AI mock interviews each month. It’s the most complete learning experience for serious tech learners now available at half the price.
+
+[![Email-BANNER-Yellow](https://github.com/user-attachments/assets/1d957ca7-2615-47ea-8047-cd567edc6255)](https://www.educative.io/unlimited?aff=BbLr)
+
 ## Latest Educative Coupon Codes
 
 Here’s a roundup of some of the best coupon codes available for Educative right now. These codes give you access to significant discounts on their online courses, subscriptions, and more!
