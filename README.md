@@ -1,4 +1,4 @@
-# Educative Coupon Code 2025 | 50% Student Discount + Trial
+# Educative.io Coupon Code 2025 - 50% Student Discount + Trial
 
 Are you looking to score huge discounts on your next purchase at Educative?
 
